@@ -1,0 +1,2 @@
+# PRATICA-6-PYTHON-2026-2
+pues si
